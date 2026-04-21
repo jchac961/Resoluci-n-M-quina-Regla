@@ -1,0 +1,1 @@
+# Resoluci-n-M-quina-Regla
